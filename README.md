@@ -1,2 +1,2 @@
-# tarasshevchenko.github.io
+# tarasshevchenko
 Тарас Григорович Шевченко. Поет. Художник. Мислитель
